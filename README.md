@@ -6,7 +6,7 @@ I am happy and proud to study with them. [the more we practise the better we wil
 
 next can't wait for see the platform resulted...... (remember that I am only  beginner)  
 
-Waa... Kinaonak (My greatting, welcoming and thanksgiving !!!) 
+Waa... Kinaonak (My greeting, welcoming and thanksgiving !!!) 
 
                                                                                                                    PAPUA-Numbay,  Friday 2th February 2024
                                                                                                                    03:00 PM
