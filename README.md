@@ -8,8 +8,8 @@ _**next can't wait for see the platform resulted...... (remember that I am only 
 
 _**Waa... Kinaonak (My greeting, welcoming and thanksgiving !!!)**_
 
-                                                                                                                   PAPUA-Numbay,  Friday 2th February 2024
-                                                                                                                   03:00 PM
+                                                                                                                   _**PAPUA-Numbay,  Friday 2th February 2024**_
+                                                                                                                   _**03:00 PM**_
 
 <!---
 nusgombo/nusgombo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
