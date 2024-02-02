@@ -4,7 +4,7 @@ _**so base on my mission back me  up to learn deppest about this (how to make a 
 _**Here I was tough by SaCode Team/communityes : Janzen Faidiban ( https://github.com/janzenfaidiban ) as SaCode Developer in Papua.**_ 
 _**I am happy and proud to study with them. [the more we practise the better we will be] isn't it...???**_ 
 
-_**next can't wait for see the platform resulted...... (remember that I am only  beginner.**_ 
+_**next can't wait for see the platform resulted...... (remember that I am only  beginner).**_ 
 
 _**Waa... Kinaonak (My greeting, welcoming and thanksgiving !!!)**_
 
